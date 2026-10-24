@@ -1,3 +1,3 @@
 # kartrider-releases
 
-https://discord.gg/uteBH6Wvff
+https://discord.gg/SxypmHEtWt
